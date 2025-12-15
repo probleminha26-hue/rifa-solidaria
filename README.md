@@ -1,1 +1,4 @@
 # rifa-solidaria
+[index.html.html](https://github.com/user-attachments/files/24168962/index.html.html)
+![iphone14 jpg](https://github.com/user-attachments/assets/c870e861-ded4-4aa0-9861-7e13cc656ad5)![iphone14 jpg](https://github.com/user-attachments/assets/349597aa-d7e6-423f-94b1-bd803afc9649)
+[index.html.html](https://github.com/user-attachments/files/24168966/index.html.html)<img width="290" height="290" alt="pix_qr_cpf (1)" src="https://github.com/user-attachments/assets/7dc3c6c9-553c-4e4a-8519-a1c6d66a7cd2" />
